@@ -1,1 +1,1 @@
-Frontend Simplified Crashcouse in HTML!
+🚀 Frontend Simplified Crashcouse in HTML 💻!
